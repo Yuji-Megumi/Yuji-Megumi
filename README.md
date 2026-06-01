@@ -1,16 +1,12 @@
-## Hi there 👋
+<div align="center">
+<img width="313" height="239" alt="Screenshot 2026-06-01 at 20-04-29 Editing 4uji-itadori_README md at main · 4uji-itadori_4uji-itadori" src="https://github.com/user-attachments/assets/53cd0b4d-6ff1-45dd-9779-ea9143520ddb" />　　
+  
+　<div align="center"> 　　
+ 
+૮ • ﻌ - ა[Main](https://github.com/2ugurugeto)
 
-<!--
-**Yuji-Megumi/Yuji-Megumi** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+　　　　　
 
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+<div align="center">
+  
+[⋆𝒢𝓊𝓃𝓈.𝓁𝑜𝓁⋆](https://guns.lol/2ugurugeto)     [⋆𝒶𝓉𝒶⋆](https://2uguruget.atabook.org/) ִ    [⋆𝒯𝒾𝓀𝓉𝑜𝓀⋆](https://www.tiktok.com/@2ugurugeto)
